@@ -1,8 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=craniotomy&color=red)
 
-pg hetalia area / 18+ idv area
-<br> <br>
 read strawpage for info about me
+<br> <br>
 <br> ![](https://camo.githubusercontent.com/d992ff7d562f10952b006e5a47778fdf070c396898c27d9d30762ef8443b95ea/68747470733a2f2f6d65646961312e74656e6f722e636f6d2f6d2f4d5455712d6345596e6e6741414141642f6e6f726469632d352d686574616c69612e676966) <br>
 #selfships <br> ![](https://file.garden/aBlmzZdbGjS8Lyln/stamps/stamp%20(1).gif) <b>&</b> ![](https://64.media.tumblr.com/e518fa52b2d2d95751ffa3095d9f6dac/56a4a6749f00fb6d-3b/s100x200/0d6cf0eee69a127f82bf786fb07be4b65775c68e.gifv)
 <br> <br>
