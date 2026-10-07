@@ -1,11 +1,18 @@
-![](https://komarev.com/ghpvc/?username=craniotomy&color=red)
 
-read strawpage for info about me
-<br> <br>
-<br> ![](https://camo.githubusercontent.com/d992ff7d562f10952b006e5a47778fdf070c396898c27d9d30762ef8443b95ea/68747470733a2f2f6d65646961312e74656e6f722e636f6d2f6d2f4d5455712d6345596e6e6741414141642f6e6f726469632d352d686574616c69612e676966) <br>
-#selfships <br> ![](https://file.garden/aBlmzZdbGjS8Lyln/stamps/stamp%20(1).gif) <b>&</b> ![](https://64.media.tumblr.com/e518fa52b2d2d95751ffa3095d9f6dac/56a4a6749f00fb6d-3b/s100x200/0d6cf0eee69a127f82bf786fb07be4b65775c68e.gifv)
-<br> <br>
-#favships <br> ![](https://64.media.tumblr.com/1e04c6f39552d19b653965ba759cb1d2/09b9affbb124ef4c-8f/s100x200/5efc78ea2055dbae36a80e57fa6901d9cac49bca.pnj) ![](https://file.garden/aBlmzZdbGjS8Lyln/stamps/vicdrew.png) ![](https://file.garden/aBlmzZdbGjS8Lyln/stamps/nortpheus) ![](https://file.garden/aBlmzZdbGjS8Lyln/stamps/riflori)
- 
-![](https://i.postimg.cc/HjDqvz12/IMG_3643.gif) ![](https://i.postimg.cc/xCgq2k1M/IMG_6464.gif) ![](https://i.postimg.cc/597MW5bn/IMG_7024.gif) ![](https://i.postimg.cc/Jn3Y4Lfb/IMG_6229.png) ![](https://i.postimg.cc/pdB1fK6B/IMG_9383.gif) ![](https://i.postimg.cc/FzD7QCzB/IMG-1532.png) ![](https://i.postimg.cc/mDJYt9Jd/d5bnwqr-9dee755b-18de-43dd-9ab1-c14992aa8170.png) ![](https://64.media.tumblr.com/100659b1b0e87678530815a237672889/29483cdf1fd29bfe-7c/s100x200/1496402790837cedb116c440e335f4587535e03d.webp) ![](https://64.media.tumblr.com/fee2d8e53ef7a1e23dd3b4a3f17c7ec4/86cd396632a5bfd3-3d/s100x200/16256a0051e3aebc9dc153cd455dfe515bba2ab5.pnj) ![](https://64.media.tumblr.com/f33d35f8f67332e13f9d96021ec000f6/ea7f2a54e7fd5cfc-14/s100x200/8d74093d1b588f0f3d8b80476126fe1874896c9a.pnj) ![](https://64.media.tumblr.com/212c3474c3892c0e864f4d0a53f58716/56838e9c58515ae2-b9/s100x200/29a29e2f3a1a61c576a5d875fb3bf0fa558e641b.pnj) ![](https://i.postimg.cc/9fXtSCyB/d4ayouo-8cc598d2-b801-4f0b-990f-1718b7809326.gif) ![](https://64.media.tumblr.com/ef27b3d57c6dbfb976d43d470c4113e2/4563b7e1e7a264b5-fb/s100x200/4f7a7ce16fd8a68db36cb2e6f3eb696ec22f9554.gifv) ![](https://64.media.tumblr.com/99b3d1a845ee75e1ae59c09e956f3804/14364f1a2e5d445a-76/s100x200/f9a606d132f99b3c010336774fb97f327258f583.pnj) ![](https://pix.crd.co/assets/images/gallery13/c5490cca_original.png?v=95dd3781) ![](https://64.media.tumblr.com/d4ba8ff9759c06199dd6c38ad595d888/14364f1a2e5d445a-55/s100x200/653f002ecca5f83d92ae1545be43f8f3528b748d.pnj) ![](https://64.media.tumblr.com/ddd0c3852362a469fd47c17f33dcb33c/b4d80279bd43143c-db/s100x200/f2653746b2812316dcf1959b500883f70dd629ca.gifv) ![](https://64.media.tumblr.com/5fa939a50e55f122ee07f32df89ed997/995dbba58e8b6db1-09/s100x200/cd55441e963226bd1458c9f99428d7dd8bb807f7.pnj) ![](https://64.media.tumblr.com/ac3249c48ca45facc4d266e0ef643686/e90018fab91a3f23-6b/s250x400/2d81cf6cc57e78ea5088e22985d797367ff981b2.gifv) ![](https://64.media.tumblr.com/216a8e311c7c1471297b52f759329328/55e95bddce764cf6-e1/s100x200/e2f1b2e33ea992ee8e868be351b188da754965ad.pnj) ![](https://64.media.tumblr.com/f018c4e8333e15e4c613e4b28567ae7b/b16efdc9f7d63f13-76/s100x200/ee6f0a01d5e00eba153df3e3addf3ae21586ec35.gifv) ![](https://64.media.tumblr.com/c179f55b713cc41b01080587dca841c7/8dc149ff6ef3b57b-e3/s100x200/d9cca1b2bfca293da02ed786a54fb7d18e4fc8db.pnj) ![](https://64.media.tumblr.com/7127ac52e190dc4b68e19d5e0fac6fcb/649ccefde1a7ecec-6e/s100x200/b3c7e6336d108051db7dc49c392cbf3c2354d684.gifv) ![](https://64.media.tumblr.com/db42e6dbb30d12dccc9456352c66d44c/e53ef91ed552dba9-1b/s100x200/0e957d97e935b856e23e7ce1714bf22d27babd03.gifv) ![](https://64.media.tumblr.com/b9089c6ab8a658f2155f4c75c4d77052/17b88ba8bc3a333f-f1/s100x200/17b6debd646c5ec7b747587f8f814a0a12366581.pnj) ![](https://64.media.tumblr.com/50670f3cfab875364a2afd0ee3560257/6b318c393d77d2ae-fe/s100x200/4663079bfe568efd3d8d2b3684a32ab4296eefc5.gifv) ![](https://64.media.tumblr.com/924dba74ee7d8e5b313488c7937211e6/17b88ba8bc3a333f-7f/s100x200/e9f02ce21a07b5ff41b3a5360590f246719ce10f.pnj) 
+![](https://komarev.com/ghpvc/?username=craniotomy&color=grey)
 
+<p align="center">
+<img src="https://i.pinimg.com/736x/aa/81/80/aa8180d5a5469dfb10b7dc98ddd638f6.jpg">
+</p>
+</br>
+<p align="center">
+<img src="https://64.media.tumblr.com/21d9306a4f45f1dad4fe9b1da0b16e65/28f8e7e0a15efcc7-dc/s100x200/c313a9a7b4baf8f2ccdc61892127e35f11ed50c9.pnj">
+<img src="https://64.media.tumblr.com/0a581714bbdbb2bf15c43a6610caa65a/2548336508d80c65-c2/s100x200/923f049d0396ea5ff4283fd753a376ffb96f008a.pnj">
+<img src="https://64.media.tumblr.com/eafd9cfb823c41c17eac1bb7f40a7a5e/28f8e7e0a15efcc7-16/s100x200/cffa9e57b43aff2a5adf4fbe1e9e35af8f726283.pnj">
+</p>
+<p align="center">
+<img src="https://64.media.tumblr.com/33e5c0d96ee9cf99fd3718dc3a5f6314/c409f3c4790435bc-5f/s250x400/4afee2ab4aea47aeda33ba1db37338512dc2c53e.gifv">
+</p>
+<p align="center">
+<img src="https://i.pinimg.com/originals/6c/35/2d/6c352de24f95e2ee2aa13778b8220566.gif">
+</p>
