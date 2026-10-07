@@ -15,5 +15,5 @@
 <img src="https://64.media.tumblr.com/d40d4eb0d8dc71cc505ee2c24b7eedbc/f5c870001d82f1f7-9c/s250x400/bf97e9c356425725f89fbe74c052dc63cc9b95ae.gifv">
 </p>
 <p align="center">
-<img src="https://i.pinimg.com/originals/cb/9e/1b/cb9e1b074b32ec23a1cfaadfa23528d5.gif">
+<img width="100" src="https://i.pinimg.com/originals/cb/9e/1b/cb9e1b074b32ec23a1cfaadfa23528d5.gif">
 </p>
